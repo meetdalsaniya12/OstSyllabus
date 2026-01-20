@@ -1,1 +1,1 @@
-# OstSyllabus
+# Ost
